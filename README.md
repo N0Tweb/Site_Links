@@ -1,8 +1,6 @@
 DISCLAIMER!!! These sites were not created/hosted/monitored/monetized by me and I have no control over them or their content. These sites are not to be used without permission from your educational instructor. We do not condone any type of misuse and we strongly encourage you to complete all your work before you play games.
 
-Please bookmark this doc for easy access. You can comment requests for games or sites etc. 
-
-The share button can be used by all users to share this doc with more people.
+Please bookmark this git for easy access.
 
 Games
 
