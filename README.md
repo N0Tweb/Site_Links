@@ -4,7 +4,7 @@ Please bookmark this git for easy access.
 
 Games
 
-https://n0tweb.github.io/Pomgames2.0/
+https://n0tweb.github.io/Pom2.0/
 
 https://pxlnova4.pages.dev/ 
 
