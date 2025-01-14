@@ -1,4 +1,6 @@
-DISCLAIMER!!! These sites were not created/hosted/monitored/monetized by me and I have no control over them or their content. These sites are not to be used without permission from your educational instructor. We do not condone any type of misuse and we strongly encourage you to complete all your work before you play games.
+DISCLAIMER!!! These sites were not created/hosted/monitored/monetized by me and I have no control over them or their content. These sites are not to be used without permission from your educational instructor. We do not condone any type of misuse and we strongly encourage you to complete all your work before you play games. 
+
+In compliance with my organization comment functions are not to be integrated into any of these sites. As i have been taught by them that allowing freedom of speech will result in disciplinary action against me. I thank all of you for your compliance. 
 
 Please bookmark this git for easy access.
 
