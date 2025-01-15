@@ -8,7 +8,7 @@ Games
 
 https://n0tweb.github.io/Pom2.0/
 
-https://security.from.annaffiare.org (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
+https://selenite.global.ssl.fastly.net (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
 
 https://pxlnova4.pages.dev/ 
 
