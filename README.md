@@ -36,6 +36,9 @@ https://mp3juice.ninja/
 
 https://serendip.co.za/ 
 
+Calculator that looks like oncourse connect.
+https://n0tweb.github.io/Notcalc/
+
 Shows and TV
 
 (will be added later) 
