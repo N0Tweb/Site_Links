@@ -4,6 +4,10 @@ In compliance with my organization comment functions are not to be integrated in
 
 Please bookmark this git for easy access.
 
+
+Calculator that looks like oncourse connect.
+https://n0tweb.github.io/Notcalc/
+
 Games
 
 https://n0tweb.github.io/Pom2.0/
@@ -35,9 +39,6 @@ https://drlawnmower.co.za/  (best one)
 https://mp3juice.ninja/ 
 
 https://serendip.co.za/ 
-
-Calculator that looks like oncourse connect.
-https://n0tweb.github.io/Notcalc/
 
 Shows and TV
 
