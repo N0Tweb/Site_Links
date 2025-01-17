@@ -14,7 +14,7 @@ https://n0tweb.github.io/Pom2.0/
 
 https://selenite.global.ssl.fastly.net (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
 
-https://pxlnova4.pages.dev/ 
+https://watermelondrop.github.io/ 
 
 https://ello.global.ssl.fastly.net/  (THIS ONE HAS ALL FNAF VERSION!!!)
 
@@ -42,4 +42,4 @@ https://serendip.co.za/
 
 Shows and TV
 
-(will be added later) 
+https://flixbaba.com/ (if it does not load try all players on the site.)
