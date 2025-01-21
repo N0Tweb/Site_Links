@@ -15,6 +15,8 @@ https://n0tweb.github.io/Notcalc/
 
 Games
 
+https://i-have.easychargebatteries.com/
+
 https://n0tweb.github.io/Pom2.0/
 
 https://selenite.global.ssl.fastly.net (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
