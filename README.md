@@ -2,7 +2,7 @@ DISCLAIMER!!! These sites were not created/hosted/monitored/monetized by me and 
 
 This site is protected by the 1st Amendment of the United States Constitution as it does not cause a “material and substantial disruption” means “any conduct that intentionally and significantly hinders another person’s or group’s expressive rights.” This site does not infringe on the speech, rights, and or personal life of anyone. 
 
-This site is also protected under the Executive Order that is commonly known and referred to as 
+This site is also protected under an Executive Order that is commonly known and referred to as 
 [“Restoring of Freedom Speech and Ending Federal Censorship”](https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/ ) signed by President Donald J. Trump on January 20, 2025. 
 
 In compliance with my organization comment functions are not to be integrated into any of these sites. As i have been taught by them that allowing freedom of speech will result in disciplinary action against me. I thank all of you for your compliance. 
