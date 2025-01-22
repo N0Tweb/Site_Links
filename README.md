@@ -14,21 +14,17 @@ https://n0tweb.github.io/Notcalc/
 
 Games
 
-https://dan.is-very.fun/ *NT
-
-https://ihatefurrys.animalabuseisreal.opiumm.d-n-s.name/ *NT
-
-https://cdn.simplix.cl/ *NT
-
-https://cdn.ens.org/ *NT
-
 https://n0tweb.github.io/Pomlite/projects.html
+
+https://op1um.pages.dev/
 
 https://n0tweb.github.io/Pom2.0/
 
 https://selenite.global.ssl.fastly.net (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
 
 https://watermelondrop.github.io/ 
+
+https://dan.is-very.fun/ (onnly works on non web blocked networks.
 
 https://ello.global.ssl.fastly.net/  (THIS ONE HAS ALL FNAF VERSION!!!)
 
