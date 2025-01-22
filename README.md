@@ -4,7 +4,7 @@ This site is protected by the 1st Amendment of the United States Constitution as
 
 This site is also protected under Executive Order 14146: [Restoring Freedom of Speech and Ending Federal Censorship.](https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/ ) signed by President Donald J. Trump on January 20, 2025. 
 
-In compliance with my organization comment functions are not to be integrated into any of these sites. As i have been taught by them that allowing freedom of speech will result in disciplinary action against me. I thank all of you for your compliance. 
+In compliance with my organization comment functions are not to be integrated into any of these sites. As i have been told by them that allowing freedom of speech will result in disciplinary action against me. I thank all of you for your compliance. 
 
 Please bookmark this Git for easy access.
 
