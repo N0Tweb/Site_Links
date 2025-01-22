@@ -14,7 +14,13 @@ https://n0tweb.github.io/Notcalc/
 
 Games
 
-https://i-have.easychargebatteries.com/
+https://dan.is-very.fun/ *NT
+
+https://ihatefurrys.animalabuseisreal.opiumm.d-n-s.name/ *NT
+
+https://cdn.simplix.cl/ *NT
+
+https://cdn.ens.org/ *NT
 
 https://n0tweb.github.io/Pomlite/projects.html
 
