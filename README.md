@@ -28,7 +28,7 @@ https://selenite.global.ssl.fastly.net (This one was made by https://github.com/
 
 https://watermelondrop.github.io/ 
 
-https://dan.is-very.fun/ (onnly works on non web blocked networks.
+https://dan.is-very.fun/ (only works on non web blocked networks.
 
 https://ello.global.ssl.fastly.net/  (THIS ONE HAS ALL FNAF VERSION!!!)
 
