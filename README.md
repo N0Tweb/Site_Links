@@ -14,6 +14,8 @@ https://n0tweb.github.io/Notcalc/
 
 Games
 
+https://hyperrushnet.github.io/
+
 https://n0tweb.github.io/Pomlite/projects.html
 
 https://op1um.pages.dev/
