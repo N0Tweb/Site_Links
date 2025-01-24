@@ -64,6 +64,8 @@ https://wv28.yesmovies123.me/ (movie+tv)
 
 https://freek.to/ (anime+movie+tv)
 
+https://www.bitcine.app/ (anime+movie+tv)
+
 https://www.cineby.app/ (anime+movie+tv)
 
 (if it does not load try all players on the site.)
