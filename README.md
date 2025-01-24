@@ -56,10 +56,17 @@ https://serendip.co.za/
 
 Shows and TV
 
+https://flixbaba.com/ (movie+tv)
+
+https://en.watchfree-official.live/movies (movie+tv)
+
+https://wv28.yesmovies123.me/ (movie+tv)
+
+https://freek.to/ (anime+movie+tv)
+
+https://www.cineby.app/ (anime+movie+tv)
+
 (if it does not load try all players on the site.)
 
-https://flixbaba.com/
 
-https://en.watchfree-official.live/movies 
 
-https://wv28.yesmovies123.me/
