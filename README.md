@@ -14,7 +14,7 @@ https://n0tweb.github.io/Notcalc/
 
 Games
 
-https://hyperrushnet.github.io/
+https://hyperrushnet.github.io/ (only works on non-restricted networks)
 
 https://n0tweb.github.io/Pomlite/projects.html
 
