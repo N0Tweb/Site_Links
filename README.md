@@ -9,7 +9,7 @@ In compliance with my organization comment functions are not to be integrated in
 Please bookmark this Git for easy access.
 
 
-Calculator that looks like oncourse connect.
+Calculator that looks like Oncourse Connect.
 https://n0tweb.github.io/Notcalc/
 
 Games
