@@ -10,7 +10,7 @@ Please bookmark this Git for easy access.
 
 
 Calculator that looks like Oncourse Connect.
-https://n0tweb.github.io/Notcalc/
+https://n0tweb.github.io/Flapjack/
 
 Games
 
