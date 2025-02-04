@@ -8,33 +8,16 @@ Last Site Ban Wave was on 1/27/2024
 
 Please bookmark this Git for easy access.
 
-Calculator that looks like Oncourse Connect.
-
-[Calculator Here](https://binaryo0verflow.github.io/Flapjack/)
 
 Games
 
-https://hyperrushnet.github.io/ (only works on non-restricted networks)
-
-https://binaryo0verflow.github.io/P0mlite1.1/projects.html
-
-https://op1um.pages.dev/
-
-https://binaryo0verflow.github.io/Pom2.1/
-
 https://selenite.global.ssl.fastly.net (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
 
-https://dan.is-very.fun/ (only works on non web blocked networks.
-
 https://ello.global.ssl.fastly.net/  (THIS ONE HAS ALL FNAF VERSION!!!)
-
-https://boredom.global.ssl.fastly.net/ 
 
 https://v2-maybe.pages.dev/static/ 
 
 https://us4-a.global.ssl.fastly.net/ 
-
-https://therealastral.astraltech.org/ 
 
 https://www.worldguessr.com/ 
 
@@ -45,8 +28,6 @@ Music
 https://drlawnmower.co.za/  (best one)
 
 https://mp3juice.ninja/ 
-
-https://serendip.co.za/ 
 
 Shows and TV
 
