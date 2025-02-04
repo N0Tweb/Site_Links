@@ -3,13 +3,25 @@ Please bookmark this Git for easy access.
 
 Games
 
+https://763.docin60.com/
+
+https://c1ever.niteryder.net/
+
 https://selenite.global.ssl.fastly.net (This one was made by https://github.com/skysthelimitt email them at support@selenite.cc for support DON'T ASK ME!!!)
 
-https://ello.global.ssl.fastly.net/  (THIS ONE HAS ALL FNAF VERSION!!!)
+https://ello.global.ssl.fastly.net/ (THIS ONE HAS ALL FNAF VERSION!!!)
+
+https://classlink.global.ssl.fastly.net/
+
+https://mes.global.ssl.fastly.net/
 
 https://v2-maybe.pages.dev/static/ 
 
 https://us4-a.global.ssl.fastly.net/ 
+
+https://sunnysgym.shop/
+
+https://monkey3three.com/
 
 https://www.worldguessr.com/ 
 
